@@ -31,7 +31,7 @@ I am always open to connecting with like-minded professionals passionate about *
 
 Feel free to connect with me:
 - 📧 **Email:** [rohitrajrajrohit60@gmail.com](mailto:rohitrajrajrohit60@gmail.com)
-- 🔗 **LinkedIn:** [linkedin.com/in/rohitrajrajrohit60](https://www.linkedin.com/in/rohitrajrajrohit60/)  
+- 🔗 **LinkedIn:** [linkedin.com/in/rohitrajanalyticsmind](https://www.linkedin.com/in/rohitrajanalyticsmind/)  
 
 Let’s work together to create value through **data** and shape the future!
 
